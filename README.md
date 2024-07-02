@@ -3,7 +3,7 @@
 Full-Stack Developer!
 
 **You can contact me here:** <br/>
-**Telegram:** @zqwxjs <br/>
+**Telegram:** [@lrxtyh](https://t.me/lrxtyh) <br/>
 **Email:** slednikov.alex@mail.ru
 
 ## ⚡️ Skills
