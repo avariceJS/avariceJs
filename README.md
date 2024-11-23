@@ -3,7 +3,7 @@
 Full-Stack Developer!
 
 **You can contact me here:** <br/>
-**Telegram:** [@lrxtyh](https://t.me/onlyTwoPos) <br/>
+**Telegram:** [@onlyTwoPos](https://t.me/onlyTwoPos) <br/>
 **Email:** slednikov.alex@mail.ru
 
 ## ⚡️ Skills
